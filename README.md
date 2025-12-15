@@ -1,2 +1,13 @@
 # debra-vaughn-dlugolenski
 Debra Vaughn Dlugolenski
+Case Status Clarification — Debra Vaughn Dlugolenski
+Date: August 4,2022
+This statement is provided solely to clarify the procedural status of Debra Vaughn Dlugolenski in the federal civil matter KOSHA, LLC et al. v. Alford et al., U.S. District Court for the Middle District of Georgia, Case No. 4:19-cv-00172-CDL.
+Summary of Resolution as to Debra Vaughn Dlugolenski
+•	The parties filed a joint stipulation of dismissal as to Debra Vaughn Dlugolenski. (Stipulation of Dismissal, ECF No. 140).
+•	Accordingly, all claims against Debra Vaughn Dlugolenski were dismissed with prejudice. (ECF No. 140).
+•	A dismissal with prejudice means the claims were resolved finally as to Ms. Dlugolenski and may not be refiled.
+Important Clarification
+This statement is intended to provide an accurate, citation-based clarification of the court record and is not intended to comment on any other party or claim in the matter.
+Reference: KOSHA, LLC et al. v. Alford et al., Case No. 4:19-cv-00172-CDL (M.D. Ga.), ECF No. 140.
+
